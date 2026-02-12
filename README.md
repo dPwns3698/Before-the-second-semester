@@ -1,2 +1,2 @@
 # Before-the-second-semester
-Befor the second semester. 
+Before the second semester. 
